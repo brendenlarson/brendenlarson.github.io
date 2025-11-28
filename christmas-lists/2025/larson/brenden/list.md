@@ -1,0 +1,18 @@
+# Brenden's Christmas List 2025
+- [ ] 2 long sleeve shirts xxl
+- [ ] 1 Sweatshirt xxl
+- [ ] Pajama Pants XL
+- [ ] Black Dress Shoes size 11.5/12
+- [ ] Gift card/certificate to restaurant (wahi hana)
+- [ ] Edgefield gift card?
+- [ ] Trader joes tea tree shampoo & conditioner
+- [ ] Dove Men + Care Antiperspirant (Not deodorant)
+- [ ] Colgate total gel (mint or the blue one)
+- [ ] Shower head with hose Waterpik 6-Spray Wall Mount Handheld Shower Head 1.8 GPM in Brushed Nickel
+- [ ] Any pinot grigio or pino gris wine
+- [ ] Argyle brut wine
+- [ ] Movie tickets
+- [ ] Top Golf
+- [ ] Ground Kontrol gift card
+- [ ] Kitchen sink faucet
+- [ ] Hair comb - simple, fine tooth comb
